@@ -1,0 +1,5 @@
+- Hello! I’m @paulbellows
+- I run a company called Yellow Pencil in Canada. We make digital things for government and higher education
+- I'm the host of The 311 Podcast on digital government
+- I'm a dad, a cyclist, a skier, and a very inflexible yoga practitioner
+- You can reach me at paul@yellowpencil.com
